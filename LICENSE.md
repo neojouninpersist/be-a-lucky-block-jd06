@@ -1,4 +1,4 @@
-
+secret be a lucky block Scripts offers the most advanced be a lucky block Script, with no clip and invisibility. Perfect for dominating any match.
 
 
 
